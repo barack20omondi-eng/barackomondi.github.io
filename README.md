@@ -21,10 +21,10 @@ Olympic High School
 ### January 2024 – Ongoing
 Congregation of the Mission, Vice-Province of Kenya
 Communication Director
-Writing and distributing a newsletter
-Developing and designing a monthly E-newsletter
-Organizing, monitoring, and managing media coverage 
-Maintaining and updating the organization's website and social media channels
+-Writing and distributing a newsletter
+-Developing and designing a monthly E-newsletter
+-Organizing, monitoring, and managing media coverage 
+-Maintaining and updating the organization's website and social media channels
 
 ### February 2023 – August 2023
 Dentsu Kenya
