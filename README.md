@@ -47,7 +47,7 @@ Pamoja Radio
 Reporter (Intern)                              
 
 
-VOLUNTEER EXPERIENCE 
+### VOLUNTEER EXPERIENCE 
 September 2018 to 18/02/2021
 Youth and Success Association
 Digital Media Officer              
@@ -55,7 +55,7 @@ Consult with the client to establish the creative brief and project deliverables
 Managing media content and social media accounts
 Assist with staging and set preparation.
 
-LEADERSHIP EXPERIENCE 
+### LEADERSHIP EXPERIENCE 
 September 2018 to date 
 Olympic High School Alumni Association
 Founder & Chairperson    
@@ -73,7 +73,7 @@ Students Delegate
 As a student delegate, I was responsible for equal student representation and conducting oversight to student leaders’ council.
 
 
-AWARDS
+### AWARDS
 October 2023
 Tangaza University College
 Outstanding Student Award    
@@ -83,7 +83,7 @@ Capwel Industries,
 2nd Runners up in Content Creation Competition
 
 
-PUBLICATIONS
+### PUBLICATIONS
 1.	Congregation of the Mission, Vice-Province of Kenya Monthly Newsletters (ongoing)
 2.	Lens Magazine, Olympic High School Journalism Club, August 2019
 
