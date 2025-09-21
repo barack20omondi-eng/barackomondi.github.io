@@ -26,28 +26,27 @@ Outside the corporate world, I am the founder and Chief Executive of Mediapot So
 ### January 2024 – Ongoing
 **Congregation of the Mission, Vice-Province of Kenya**
 *Communication Director*
--Writing and distributing a newsletter
--Developing and designing a monthly E-newsletter
--Organizing, monitoring, and managing media coverage 
--Maintaining and updating the organization's website and social media channels
+1. Writing, developing and designing a monthly E-newsletter
+2. Organizing, monitoring, and managing media coverage 
+3. Maintaining and updating the organization's website and social media channels
 
 ### February 2023 – August 2023
 **Dentsu Kenya**
 *Content Creator (Animator & Editor)*         
-Creating GIFs and short animations 
-Designing and resizing posters for various media outlets 
+1. Creating GIFs and short animations 
+2. Designing and resizing posters for various media outlets 
 
 ### June 2022 – March 2023
 **The Standard Group PLC**
 *Digital designer*
-Video editing, photography, and animation 
-Designing (Print, website, and social media) posters
+1. Video editing, photography, and animation 
+2. Designing (Print, website, and social media) posters
 
 ### September 2020 – May 2022
 **Chimphondah Media House; Zonk**
 *Production and content creation*
-Videography, photography, and animation
-Graphic design
+1. Videography, photography, and animation
+2. Graphic design
 
 ### April 2017-December 2020
 **Pamoja Radio**
@@ -58,16 +57,16 @@ Graphic design
 ### September 2018 to 18/02/2021
 **Youth and Success Association**
 *Digital Media Officer*              
-Consult with the client to establish the creative brief and project deliverables
-Managing media content and social media accounts
-Assist with staging and set preparation.
+1. Consult with the client to establish the creative brief and project deliverables
+2. Managing media content and social media accounts
+3. Assist with staging and set preparation.
 
 # LEADERSHIP EXPERIENCE 
 ### September 2018 to date 
 **Olympic High School Alumni Association**
 *Founder & Chairperson*    
-Preside over all meetings of the Board and at all general meetings.
-Acting in the best interest of the Association at all times.
+1. Preside over all meetings of the Board and at all general meetings.
+2. Acting in the best interest of the Association at all times.
 
 ### 1st April 2022 to 27th May 2023
 **Tangaza University College**
