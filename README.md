@@ -1,4 +1,4 @@
-# barackomondi.github.io
+# Barack Omondi Resume
 ### Bio
 I am a passionate graphic designer, animator, and digital content creator from Nairobi, Kenya, driven by a commitment to using media and leadership skills for positive social impact. My academic journey started at Multimedia University of Kenya, where I earned my undergraduate degree in Broadcast Journalism. My strong media skills allowed me to offer my services to both mainstream media outlets and advertising agencies. Later, I attended Tangaza University, where I studied for a Bachelor's degree in Leadership and Management, majoring in Public Administration.
 
